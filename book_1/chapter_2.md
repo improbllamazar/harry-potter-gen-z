@@ -9,7 +9,7 @@ Yet Harry Potter was still there, catchin Zs at the moment, but not for long. Hi
 
 Harry woke with a start. His aunt tapped on the door again.
 
-"Up!" she screeched. Harry heard her trodding toward the kitchen and then the sound of a frying pan being put on the stove. He rolled onto his back and tried to remember the dream he had been having. It was sick. There had been a flying motorcycle in it. It totes felt like deja vu.
+"Up!" she screeched. Harry heard her trodding toward the kitchen and then the sound of a frying pan being dumped on the stove. He rolled onto his back and tried to remember the dream he had been having. It was sick. There had been a flying motorcycle in it. It totes felt like deja vu.
 
 His aunt teleported back outside the door.
 
@@ -25,7 +25,7 @@ Harry groaned. So done.
 
 "Nothing, nothing..."
 
-Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
+Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spidey off one of them, put them on. Harry was used to them crawly bois, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
 
 Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was fast af.
 
@@ -139,7 +139,7 @@ Harry had had a dank morning something he hadn't had in a long time. He was care
 
 Harry felt, afterward, that he should have known it was all too bussin to last.
 
-After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, cobras and yolked, man-crushing pythons. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could''ve wrapped its bod twice around Uncle Vernon's car and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
+After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, caution ramen and yolked, man-crushing murder spugerder. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could''ve wrapped its bod twice around Uncle Vernon's car and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
 
 Dudley standed with his nose pressed against the glass, deekin' at the glistening brown coils.
 
